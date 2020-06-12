@@ -19,7 +19,7 @@ an ever-present help in trouble.<br>
 The Lord Almighty is with us;<br>
 the God of Jacob is our fortress.<br>
 
-_12 juin à 15h44 (année 2020)_
+_date du poste: 12 juin à 15h44 (année 2020)_
 
 ### Support ou Contact
 
